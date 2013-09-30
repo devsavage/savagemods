@@ -1,7 +1,8 @@
 Savage Mods for Minecraft!
 =======
 
-I am looking forward to making mods and releasing them!
+I am looking forward to making and releasing mods to the public!
+
 I hope to make some very good and interesting mods in the future!
 
 
